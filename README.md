@@ -1,2 +1,0 @@
-# pandu amy febrio
-publik
